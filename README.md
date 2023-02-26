@@ -1,1 +1,1 @@
-# https-www.efoytamedia.com
+# https-www.efoytamedia.blogspot.com
